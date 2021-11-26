@@ -1,3 +1,3 @@
 🔥@KromJS Kanalının Sahibiyim 
-- Code Yapma İle Uğraşıyorum 
+- Bot İşleriyle İle Uğraşıyorum 
 - Abone Olup Like Atarsanız Sevinirim <3
